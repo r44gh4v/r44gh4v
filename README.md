@@ -1,6 +1,5 @@
-### internet diver
+### hi
 
-hi
 blr
 human x creative x STEM
 fringe science
