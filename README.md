@@ -1,5 +1,13 @@
 ### internet diver
 
+hi
+blr
+human x creative x STEM
+fringe science
+internet diver
+
+
+
 <!--
 **r44gh4v/r44gh4v** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
